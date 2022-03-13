@@ -27,7 +27,7 @@ Here are some ideas to get you started:
 <li>
 <b>Name:</b> jiezai-cbd</li>
 <li>
-<b>Fursona:</b> Female Snow Fox > ~ <
+<b>xxxxx:</b> xxxxxxx > ~ <
 </li>
 <li>
 <b>Loves:</b> you! and donuts and games maybe -///-
@@ -36,10 +36,10 @@ Here are some ideas to get you started:
 <b>Gender:</b> he/his/male
 </li>
 <li>
-<b>Hobbys:</b> Tech Stuff, Graphic Design, Web Development
+<b>Hobbys:</b> Tech Stuff, Game
 </li>
 <li>
-<b>Working @:</b> Intave Anticheat | snens.team
+<b>Working @:</b> xxxxxxxx
 </li>
 <br>
 <p><b>     Thanks fow weading this onyee-san<br>
